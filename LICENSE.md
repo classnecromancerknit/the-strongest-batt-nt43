@@ -1,4 +1,4 @@
-#  
+#  Experience the strongest battlegrounds like never before with the strongest battlegrounds elite Scripts, the #1 Script. Includes no clip and
 
 
 
